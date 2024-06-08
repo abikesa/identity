@@ -1,0 +1,6 @@
+- Crazy Rich Asians
+   - Who are you? [So](https://d2bu9v0mnky9ur.cloudfront.net/academy2018/cra/screenplay/cra_wbfomat.pdf) you’re from the Taiwan plastic Chus, right?
+   - Okay, sorry, time out. So, you’re not from a Taiwan Chu family?
+- Ethan Coen
+   - [Who the fuck are you?](https://imsdb.com/scripts/Big-Lebowski,-The.html) Why've you been following me? Come on, fuckhead!
+   - Who're you working for? Lebowski? Jackie Treehorn? 
